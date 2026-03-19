@@ -3,7 +3,7 @@
 
 > *"Bridging engineering innovation with grassroots community action — where healthcare meets human impact."*
 
-📍 Ben Arous, Mourouj, Tunisia &nbsp;|&nbsp; 📞 +216 92 537 532 &nbsp;|&nbsp; ✉️ [hideyayaakoubi6@gmail.com](mailto:hideyayaakoubi6@gmail.com) &nbsp;|&nbsp; 🌍 Arabic · French · English
+📍 Ben Arous, Mourouj, Tunisia &nbsp;|&nbsp; 📞 +216 92 537 532 &nbsp;|&nbsp; ✉️ [hideyayaakoubi6@gmail.com](mailto:hideyayaakoubi16@gmail.com) &nbsp;|&nbsp; 🌍 Arabic · French · English
 
 ---
 
